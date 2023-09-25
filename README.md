@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @UtkarshTrivedi1
+- 👋 Hi, I’m U-Arukas Tech youtube channel's owner
 - 👀 I’m interested in watching and making youtube videos
 - 🌱 I’m currently learning coding with the help of GitHub
 - 💞️ I’m looking for an editor who coud work with me 
